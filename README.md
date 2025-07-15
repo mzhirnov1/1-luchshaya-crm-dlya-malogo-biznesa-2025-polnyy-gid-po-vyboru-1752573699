@@ -1,4 +1,4 @@
-# 1. Лучшая CRM для малого бизнеса 2025: Полный гид по выбору
+# Best CRM for Small Business 2025: The Ultimate Guide to Choosing
 
 This article is also available in other languages:
 
